@@ -1,4 +1,5 @@
-
+pozdrawiam wszystkich polakow
+papiez wiedzial o pedofilii w kosciele 
 pozdrawiam serdecznie
 dej airdrop
 bardzo prosze
