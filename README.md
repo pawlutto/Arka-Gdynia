@@ -12,3 +12,4 @@ aahhaahahha
 sssssssss
 prosze nei czytajcie tego 
 co ja robie jezus 
+pozdro mordo 
