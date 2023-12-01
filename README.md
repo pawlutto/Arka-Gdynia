@@ -11,3 +11,4 @@ no pozdro
 aahhaahahha
 sssssssss
 prosze nei czytajcie tego 
+co ja robie jezus 
