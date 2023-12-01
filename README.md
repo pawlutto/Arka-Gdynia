@@ -1,6 +1,7 @@
-# Arka-Gdynia
-trojmiasto jest nasze
+
 pozdrawiam serdecznie
 dej airdrop
 bardzo prosze
 ale co ja robie
+no ludzie kochani
+przeciez to nie moze byc tak proste 
