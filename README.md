@@ -7,3 +7,4 @@ ale co ja robie
 no ludzie kochani
 przeciez to nie moze byc tak proste 
 alo alo
+no pozdro 
